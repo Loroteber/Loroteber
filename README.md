@@ -2,7 +2,7 @@
 
 I'm just a guy who enjoys coding, digging into tech, taking long walks and a lot of sleeping 
 
-> or, as my gf describes me — soft, silly and cuddly
+> or, as my gf describes me — soft, silly and cuddly ☆
 
 ---
 
